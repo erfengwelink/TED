@@ -1,7 +1,7 @@
 # Laura Vanderkam: How to gain control of your free time
 (劳拉 万德坎姆)
->>>"We don't build the lives we want by saving time. We build the lives we want, and then time saves itself. " (我们无法通过节约时间打造我们的生活，而是因为我们去打造我们想要的生活，由此时间自然会省下来。)
->>>>>>我们总是高估了每周对自己的承诺，而低估了我们实际拥有的时间。
+>"We don't build the lives we want by saving time. We build the lives we want, and then time saves itself. " (我们无法通过节约时间打造我们的生活，而是因为我们去打造我们想要的生活，由此时间自然会省下来。)
+>>我们总是高估了每周对自己的承诺，而低估了我们实际拥有的时间。
 
 
 When people find out I write about time management, they assume two things. One is that I'm always on time, and I'm not. I have four small children, and I would like to blamethem for my occasional tardiness,but sometimes it's just not their fault. I was once late to my own speech on time management.
